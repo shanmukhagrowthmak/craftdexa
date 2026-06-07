@@ -1,2 +1,2 @@
 # craftdexa
-New era od designing and innovation
+New era of designing and innovation
